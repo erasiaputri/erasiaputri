@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @erasiaputri
-- 👀 I’m interested in ... Books, Fashion and especially Science - astrology, geology, and oceanology.
+- 👀 I’m interested in ... Books, Fashion and especially Science - astrology, geology, and oceanography.
 - 🌱 I’m currently learning ...Computer Science at Universitas Klabat.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...not really yet. hahaha
 - 📫 How to reach me ... you can find me on instagram - @erasiaputri
 
 <!---
